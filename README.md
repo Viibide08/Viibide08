@@ -1,16 +1,16 @@
-## Hi there 👋
+# 🌟 Biografia da Diva Suprema 🌟
 
-<!--
-**Viibide08/Viibide08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+👑 Nome: Marya Vitoria ✨💖
+🎂 🎉🥳
+📍 Local de nascimento: Osvaldo Cruz – SP 🌆🌎
 
-Here are some ideas to get you started:
+📚 Educação: SESI-SP 🏫✏️ (a mais mais) 😎🔥
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+💭 Sonhos e objetivos:
+
+Ser uma Psicóloga poderosa 🧠💬👩‍⚕️
+
+Dirigir uma BMW X5 🚗💨💎 (chegando no rolê com estilo ✨😏)
+
+💬 Frase marcante:
+"Se agora tá ruim, pode piorar... Hahaha brincadeira." 🤣
