@@ -1,16 +1,1 @@
-# 🌟 Biografia da Diva Suprema 🌟
-
-👑 Nome: Marya Vitoria ✨💖
-🎂 🎉🥳
-📍 Local de nascimento: Osvaldo Cruz – SP 🌆🌎
-
-📚 Educação: SESI-SP 🏫✏️ (a mais mais) 😎🔥
-
-💭 Sonhos e objetivos:
-
-Ser uma Psicóloga poderosa 🧠💬👩‍⚕️
-
-Dirigir uma BMW X5 🚗💨💎 (chegando no rolê com estilo ✨😏)
-
-💬 Frase marcante:
-"Se agora tá ruim, pode piorar... Hahaha brincadeira." 🤣
+Meu nome é Marya Vitoria, tenho 16 anos, estudo na escola SESI de Osvaldo Cruz e estou no primeiro ano de Desevolvimento de Sistemas. Eu adoro matérias que se relacionem com humanas, como, história, filosofia, sociologia, geografia, e meu sonho é se tornar uma psicóloga infantil. Meu lugar favorito da vida é em Sydney na Australia (Fui quando tinha 14 anos). Espero me dar muito bem nessa área de DS, ou pelo menos conseguir me formar hahaha. ❤️
